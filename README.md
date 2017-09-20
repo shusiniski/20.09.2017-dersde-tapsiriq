@@ -1,0 +1,1 @@
+# 20.09.2017-dersde-tapsiriq
